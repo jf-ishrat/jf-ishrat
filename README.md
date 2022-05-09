@@ -39,5 +39,3 @@
 <br />
 <br />
   
-
-***Thanks for coming ❤️ ***
